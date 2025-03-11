@@ -1,5 +1,5 @@
 ### Hi! My name is Laila Tantawy.
-I am an innovator @ [The Knowledge Society](https://www.tks.world/) and a [Miss CEO](https://www.missceo.org/) ambassador. 🌍✌🏼
+I am an innovator @ [The Knowledge Society](https://www.tks.world/) and a [Miss CEO](https://www.missceo.org/) ambassador 🌍✌🏼
 
 <!--
 **laila-tntwy/laila-tntwy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
